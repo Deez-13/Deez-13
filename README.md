@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Deez-13
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning stuff in Alura (brazilian platform)
-- 💞️ I’m looking to collaborate on nothing cuz i work on my own
+- 💔 Not looking to colaborate on anything
 - 📫 How to reach me: you dont
 
 <!---
