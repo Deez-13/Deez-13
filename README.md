@@ -13,5 +13,5 @@
 Deez-13/Deez-13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![jinx](https://user-images.githubusercontent.com/105502815/168305796-9d387e7f-c4a7-4a3b-9733-aaa16616663e.jpg)
+![jinx](https://www.boredpanda.com/blog/wp-content/uploads/2022/04/272012334_3718164284975133_931792200535747066_n-62672782ed1ad__700.jpg)
 
